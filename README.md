@@ -2,6 +2,9 @@
  
 ![Winter Is Coming](https://www.forensicdjs.com/wp-content/uploads/2016/10/winter-is-coming.jpg)
 
+<p align="justify">
 > Don't be a dumbass.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;-- *Dave Winter*
+</p>
+
